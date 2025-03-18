@@ -1,4 +1,4 @@
-# Pato Business School
+# Pato School of Business
 
 ## Purpose
 
